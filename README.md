@@ -1,0 +1,1 @@
+# pensamento-compotucional-1h-2022
